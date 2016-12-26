@@ -43,7 +43,7 @@ Main goal was to see wildlife, especially animals like elephants, giraffes, rhin
 Rented a 4wd truck with 2 camping tents on top, mostly cooked own meals. More images of this type of truck w/ camper [here](https://www.google.com/search?q=toyota+hilux+with+2+tents&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjsmertzZLRAhUpsFQKHYLXBZQQ_AUICCgB&biw=1280&bih=650). 
 
 ### Need to plan early? 
-Not necessary, but would make things less stressful. 
+Not necessary, but would make things less stressful and would give more options for where/when you stay in Etosha. 
 
 We planned our trip just 2 weeks before we started. But, would definitely recommend planning earlier than that in order to have a less stressful planning experience. Things that require reservations and are hard to get at the last minute included: 1. renting a camping truck (many places were sold out), 2. getting reservations at campsites in Etosha, and 3. overnight camping/backpacking at Waterberg Plateau 
 

@@ -36,6 +36,9 @@ Oct 24: shopping & coffee at [Namibia Craft Centre] in Windhoek, catch flight at
 Main goal was to see wildlife, especially animals like elephants, giraffes, rhinos, lions, and zebras, and nature. October in Namibia is the end of the dry season, so it's a good time to see land mammels near the water holes. 
 
 ### Who & how?
+
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14677338_658041564361589_6377583009251459072_n.jpg?ig_cache_key=MTM2OTYyOTY3NjcxNjM4ODgyNg%3D%3D.2" width="400">
+
 4 people traveling together: 2 in their late 60's/early 70's and 2 in their 30's 
 Rented a 4wd truck with 2 camping tents on top, mostly cooked own meals
 

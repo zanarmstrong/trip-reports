@@ -28,7 +28,7 @@ Oct 21: drive to [Sesriem camp] near [Sossusvlei]
 
 Oct 22: [hot air ballooning] in the morning, stay at [Sesriem camp], visit [Deadvlei] and [Dune 45]
 
-Oct 23: sunrise at Dune 45, drive back to Windhoek, stay at  [Monteiro Camping]
+Oct 23: sunrise at Dune 45, drive back to Windhoek, stay at [Monteiro Camping]
 
 Oct 24: shopping & coffee at [Namibia Craft Centre] in Windhoek, catch flight at airport
 

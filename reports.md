@@ -1,4 +1,3 @@
-
 # Namibia - Oct 2016
 
 ### Itinerary
@@ -32,7 +31,7 @@ We planned our trip just 2 weeks before we started. But, would definitely recomm
 ### Recommendations
 
 ##### Highly Recommend
-Etosha - This national park is full of absolutely amazing wildlife. Each camping area has it's own waterhole which you can sit and watch the animals that come to drink water. 
+Etosha - This national park is full of absolutely amazing wildlife. Each camping area has it's own waterhole which you can sit and watch the animals that come to drink water. We spent 4 days here, and loved every one. 
 
 [Namibia Craft Centre] in Windhoek - has both traditional and modern crafts - many crafts-person owned shops under one roof - set prices w/ no haggaling, so you don't have to stress over negotiation. Also has a nice coffeeshop in case any of your group doesn't enjoy shopping :)
 
@@ -43,7 +42,7 @@ Etosha - This national park is full of absolutely amazing wildlife. Each camping
 ##### Ok
 [hot air ballooning] near the dunes - We had expected that we would go over the dunes, but due to (typical of the season) low wind we mostly went up & came back down. On the upside, we saw a stunning sunrise and enjoyed the skill of our balloonist who landed us on the back of the truckbed. The desert breakfast was one of the fanciest breakfasts I've ever had! In short, this was a very enjoyable experience, but if you are watching your budget or are only going to do a hot air ballooon once in your life I wouldn't splurge for it here.  
 
-
+[Okahandja craft markets] - If you love the local market experience and don't mind being hassled, this might be for you. Local boys "help you park" and then persistantly ask for money when you leave. Almost every shop-keeper will be asking you to come into their store, and staying with you as you look from thing to thing. And of course, there are no set prices. At the same time, they do have many beautiful crafts and seemingly fairly local craftspeople. If you prefer set prices and less hassle, check out the [Namibia Craft Centre] in Windhoek.
 
 ##### Not great
 [Erindi] - We enjoyed our first two days in this game reserve, it was fun to do our own game drive in our own vehicle, and Elephant camp had more amenities than some of the later camps. That said, we would have been disappointed if we'd seen this after Etosha and it felt a little strange that they were feeding the wildlife (although it was a severe drought so food was scarce for the grazing animals). [Waterberg plateau] is also on the way to Etosha from Windhoek, and I'd recommend that stop instead. 
@@ -51,7 +50,7 @@ Etosha - This national park is full of absolutely amazing wildlife. Each camping
 ##### Avoid
 [Wild Dog Safaris] - we used this travel agency to rent a truck and to make many of our camping reservations. I would NOT recommend them, unless it's the only way you can get camping reservations in Etosha (which we needed, and couldn't get directly from the national park). They were very difficult to communicate with, expensive, and a month after our trip we got a bill for the rental car which we'd already paid for. Try [Cardboard Box Travel] instead. 
 
-#### Didn't do, but wish we did
+### Didn't do, but wish we did
 [Backpacking on Waterberg Plateau] - Due to lions and other predators, you spend a lot of time driving rather than hiking while on safari. One exception is that you can do a 3-day backpacking trip on the Waterberg Plateau, where you can see giraffes, rhinos, zebras, and many other animals. Yes, there are leopards, but they hunt at night when you are staying in a (basic) shelter. 
 
 [Khaudum] - This game reserve tucked in the north-eastern corner of the country is for those who want more of a classic Africa safari experience: no fences and true 4wd sandy "roads". Heard that it's an amazing place to see elephants. We wanted to go once we heard about it, but couldn't quite make the timing work. 

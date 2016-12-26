@@ -1,7 +1,7 @@
 # Namibia - Oct 2016
 
 ### Itinerary
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14482874_601585596715144_1880292036003758080_n.jpg?ig_cache_key=MTM1OTM4NTI4NzUzNjQ0OTQ0OQ%3D%3D.2">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14482874_601585596715144_1880292036003758080_n.jpg?ig_cache_key=MTM1OTM4NTI4NzUzNjQ0OTQ0OQ%3D%3D.2" width="300">
 
 Oct 11: Windhoek, [Tamboti Guest House] - pick up camper truck at airport from Hertz
 
@@ -48,7 +48,7 @@ We planned our trip just 2 weeks before we started. But, would definitely recomm
 
 ##### Highly Recommend
 
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14712438_729973577159835_6050201691209334784_n.jpg?ig_cache_key=MTM2MzM0ODQ0NTY0OTI5NjkwOQ%3D%3D.2">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14712438_729973577159835_6050201691209334784_n.jpg?ig_cache_key=MTM2MzM0ODQ0NTY0OTI5NjkwOQ%3D%3D.2" width="300">
 [Etosha] - This national park is full of absolutely amazing wildlife. Each camping area has it's own waterhole which you can sit and watch the animals that come to drink water. We spent 4 days here, and loved every one. 
 
 [Namibia Craft Centre] in Windhoek - has both traditional and modern crafts - many crafts-person owned shops under one roof - set prices w/ no haggaling, so you don't have to stress over negotiation. Also has a nice coffeeshop in case any of your group doesn't enjoy shopping :)

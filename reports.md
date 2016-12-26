@@ -1,19 +1,21 @@
 # Namibia - Oct 2016
 
 ### Itinerary
+![map](https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14482874_601585596715144_1880292036003758080_n.jpg?ig_cache_key=MTM1OTM4NTI4NzUzNjQ0OTQ0OQ%3D%3D.2)
+
 Oct 11: Windhoek, [Tamboti Guest House] - pick up camper truck at airport from Hertz
 
 Oct 12: Shopping & Drive to Camp Elephant at [Erindi]
 
 Oct 13: game drives at [Erindi]
 
-Oct 14: drive to Halali camp in Etosha National Park
+Oct 14: drive to Halali camp in [Etosha] National Park
 
-Oct 15: game drives in Etosha, stay at Halali
+Oct 15: game drives in [Etosha], stay at Halali
 
-Oct 16: game drives in Etosha, stay at Okaukeijo camp
+Oct 16: game drives in [Etosha], stay at Okaukeijo camp
 
-Oct 17: game drives in Etosha, stay at Namatoni camp
+Oct 17: game drives in [Etosha], stay at Namatoni camp
 
 Oct 18: drive to [Waterberg Plateau]
 
@@ -45,15 +47,21 @@ We planned our trip just 2 weeks before we started. But, would definitely recomm
 ### Recommendations
 
 ##### Highly Recommend
-Etosha - This national park is full of absolutely amazing wildlife. Each camping area has it's own waterhole which you can sit and watch the animals that come to drink water. We spent 4 days here, and loved every one. 
+
+[![Etosha](https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14712438_729973577159835_6050201691209334784_n.jpg?ig_cache_key=MTM2MzM0ODQ0NTY0OTI5NjkwOQ%3D%3D.2)](http://www.etoshanationalpark.org/)
+[Etosha] - This national park is full of absolutely amazing wildlife. Each camping area has it's own waterhole which you can sit and watch the animals that come to drink water. We spent 4 days here, and loved every one. 
 
 [Namibia Craft Centre] in Windhoek - has both traditional and modern crafts - many crafts-person owned shops under one roof - set prices w/ no haggaling, so you don't have to stress over negotiation. Also has a nice coffeeshop in case any of your group doesn't enjoy shopping :)
 
 ##### Recommend
-
+![](https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14591001_1283580038373120_5257044737717698560_n.jpg?ig_cache_key=MTM2OTYzMjQ0ODM4Nzk5NzU4NQ%3D%3D.2)
 [Dune 45] - beautiful dune to walk up the ridge, or playfully jump down the side - it can be quite popular, especially at sunrise. You can drive right up to the edge, so it's quite accessible. If you want to avoid the crowds, try one of the other dunes (which might require a much longer walk). 
 
+![](https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14714439_212448692510911_2631935085447741440_n.jpg?ig_cache_key=MTM2NzQzMzQ4MDIyMDQwMzM0MA%3D%3D.2)
+[Deadvlei] - beautiful place for photographers! Striking colors. Fascinating place. 
+
 ##### Ok
+![](https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14583393_1789407604634243_5098531320322064384_n.jpg?ig_cache_key=MTM2NzQzMjc5NzUxMzMyOTE3NQ%3D%3D.2)
 [hot air ballooning] near the dunes - We had expected that we would go over the dunes, but due to (typical of the season) low wind we mostly went up & came back down. On the upside, we saw a stunning sunrise and enjoyed the skill of our balloonist who landed us on the back of the truckbed. The desert breakfast was one of the fanciest breakfasts I've ever had! In short, this was a very enjoyable experience, but if you are watching your budget or are only going to do a hot air ballooon once in your life I wouldn't splurge for it here.  
 
 [Okahandja craft markets] - If you love the local market experience and don't mind being hassled, this might be for you. Local boys "help you park" and then persistantly ask for money when you leave. Almost every shop-keeper will be asking you to come into their store, and staying with you as you look from thing to thing. And of course, there are no set prices. At the same time, they do have many beautiful crafts and seemingly fairly local craftspeople. If you prefer set prices and less hassle, check out the [Namibia Craft Centre] in Windhoek.
@@ -72,11 +80,6 @@ Etosha - This national park is full of absolutely amazing wildlife. Each camping
 ### Tips
 Definitely try to stay in Etosha itself, especially at Okaukeijo camp or Halali camp. If Etosha says there is no more camping or hotel reservations available, try going through a travel agency. Often there is availability, but it's been reserved by the travel agencies already.
 
-### Other notes
-
-### A few photos
-
-[![Etosha](https://cldup.com/dTxpPi9lDf.thumb.png)](https://nodesource.com/products/nsolid)
 
 [//]: # (These are reference links used in the body of this note and get stripped out when the markdown processor does its job. There is no need to format nicely because it shouldn't be seen. Thanks SO - http://stackoverflow.com/questions/4823468/store-comments-in-markdown-syntax)
 
@@ -95,5 +98,6 @@ Definitely try to stay in Etosha itself, especially at Okaukeijo camp or Halali 
    [Wild Dog Safaris]: <http://www.wilddog-safaris.com/>
    [Cardboard Box Travel]: <http://www.namibian.org/>
    [Khaudum]: <http://www.namibia-travel.net/travelguide/northern-namibia/khaudum-national-park.html>
+   [Etosha]: <http://www.etoshanationalpark.org/>
    
 

@@ -1,7 +1,7 @@
 # Namibia - Oct 2016
 
 ### Itinerary
-![map](https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14482874_601585596715144_1880292036003758080_n.jpg?ig_cache_key=MTM1OTM4NTI4NzUzNjQ0OTQ0OQ%3D%3D.2)
+![map](https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14482874_601585596715144_1880292036003758080_n.jpg?ig_cache_key=MTM1OTM4NTI4NzUzNjQ0OTQ0OQ%3D%3D.2 =100)
 
 Oct 11: Windhoek, [Tamboti Guest House] - pick up camper truck at airport from Hertz
 

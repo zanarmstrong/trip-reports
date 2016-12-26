@@ -66,12 +66,17 @@ We planned our trip just 2 weeks before we started. But, would definitely recomm
 
 [Deadvlei] - beautiful place for photographers! Striking colors. Fascinating place. 
 
+<img src="https://lh3.googleusercontent.com/Wg6oYg8JwwGW2b-HMf5vLQjB6ITTpghqMICNjByo7vmMeCVO-cBSxGqCHXnzE_AOsb7Sy-_-N8PJl2uoGmohFwY71DFqSuUWUaYIVmlVI4jupprlMcW0P-U6l5-fKlSgJuqCFflgHHyCNw1Y-kks7Yk16Agi78eBMTr9cxTuDXW1uFAoqEjAu9_6F67__CkjUfkS_f6OPemwGurzxU3VIO97E267l6PyPtPSPWE6auUTmnnDjTEO-JpYu8OtStjun6cgbQVOxvNROQW4Hq46g74YCVtP1MNXEme3IGseWBNxTaLgyEAVH1dq1FVTtODKCx5wetlY8v0cRS3ff-R_b3JYGjMcO4EuAkQ2tKaQ9--ydVZJV2ITJTq7Q-R1_bHluNWkysaIOR1qtl8OzZ_HGgpR-Kqrh8V-R3C5o4-CeceGxM7K5clLFcpLhPwU_NtB338K2K6zTVqMCIjYpuLloJ8dTXjPYXpzVYDm2_qGS_O-B0pT20N0fKiYTMor0qZ2kfzt4bjJAnllrB5XDE5WqCyTuVBWaJspXaYnlvAyQ34atYOMUIQ3h_AFy95hg3MKaAhJ5GYqqBKNTlsJLHtEkPa8Q4lro91xcJTTq6P6aD7ODqUqpg=w466-h262-no" width="400">
+
+[Waterberg Plateau] - Enjoyable good stop on the way between Windhoek and Etosha, but not a "must do". Enjoyed hiking & scrambling up to the edge of the plateau to get a good view, especially since you otherwise spend so much time in the car on safari. Also enjoyed the guided game drive on top of plateau to see animals including viewing from inside a hide. Nice swimming pool to cool off and nice restaurant in historical fort. 
+
 ##### Ok
 <img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14583393_1789407604634243_5098531320322064384_n.jpg?ig_cache_key=MTM2NzQzMjc5NzUxMzMyOTE3NQ%3D%3D.2" width="400">
 
 [hot air ballooning] near the dunes - We had expected that we would go over the dunes, but due to (typical of the season) low wind we mostly went up & came back down. On the upside, we saw a stunning sunrise and enjoyed the skill of our balloonist who landed us on the back of the truckbed. The desert breakfast was one of the fanciest breakfasts I've ever had! In short, this was a very enjoyable experience, but if you are watching your budget or are only going to do a hot air ballooon once in your life I wouldn't splurge for it here.  
 
 [Okahandja craft markets] - If you love the local market experience and don't mind being hassled, this might be for you. Local boys "help you park" and then persistantly ask for money when you leave. Almost every shop-keeper will be asking you to come into their store, and staying with you as you look from thing to thing. And of course, there are no set prices. At the same time, they do have many beautiful crafts and seemingly fairly local craftspeople. If you prefer set prices and less hassle, check out the [Namibia Craft Centre] in Windhoek.
+
 
 ##### Not great
 [Erindi] - We enjoyed our first two days in this game reserve, it was fun to do our own game drive in our own vehicle, and Elephant camp had more amenities than some of the later camps. That said, we would have been disappointed if we'd seen this after Etosha and it felt a little strange that they were feeding the wildlife (although it was a severe drought so food was scarce for the grazing animals). [Waterberg plateau] is also on the way to Etosha from Windhoek, and I'd recommend that stop instead. 

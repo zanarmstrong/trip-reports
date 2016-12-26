@@ -60,7 +60,9 @@ We planned our trip just 2 weeks before we started. But, would definitely recomm
 ##### Recommend
 <img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14591001_1283580038373120_5257044737717698560_n.jpg?ig_cache_key=MTM2OTYzMjQ0ODM4Nzk5NzU4NQ%3D%3D.2" width="400">
 
-[Dune 45] - beautiful dune to walk up the ridge, or playfully jump down the side - it can be quite popular, especially at sunrise. You can drive right up to the edge, so it's quite accessible. If you want to avoid the crowds, try one of the other dunes (which might require a much longer walk). 
+[Dune 45] - beautiful dune to walk up the ridge, or playfully jump down the side - it can be quite popular, especially at sunrise. You can drive right up to the edge, so it's quite accessible. 
+
+You can't drive to the other dunes, but we think you might be able to walk to them. So, I'd recommend looking into that if you want to avoid the crowd. 
 
 <img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14714439_212448692510911_2631935085447741440_n.jpg?ig_cache_key=MTM2NzQzMzQ4MDIyMDQwMzM0MA%3D%3D.2" width="400">
 

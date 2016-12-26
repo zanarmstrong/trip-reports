@@ -57,12 +57,13 @@ We planned our trip just 2 weeks before we started. But, would definitely recomm
 
 [Namibia Craft Centre] in Windhoek - has both traditional and modern crafts - many crafts-person owned shops under one roof - set prices w/ no haggaling, so you don't have to stress over negotiation. Also has a nice coffeeshop in case any of your group doesn't enjoy shopping :)
 
-##### Recommend
 <img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14591001_1283580038373120_5257044737717698560_n.jpg?ig_cache_key=MTM2OTYzMjQ0ODM4Nzk5NzU4NQ%3D%3D.2" width="400">
 
 [Dune 45] - beautiful dune to walk up the ridge, or playfully jump down the side - it can be quite popular, especially at sunrise. You can drive right up to the edge, so it's quite accessible. 
 
 You can't drive to the other dunes, but we think you might be able to walk to them. So, I'd recommend looking into that if you want to avoid the crowd. 
+
+##### Recommend
 
 <img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14714439_212448692510911_2631935085447741440_n.jpg?ig_cache_key=MTM2NzQzMzQ4MDIyMDQwMzM0MA%3D%3D.2" width="400">
 
@@ -77,11 +78,10 @@ You can't drive to the other dunes, but we think you might be able to walk to th
 
 [hot air ballooning] near the dunes - We had expected that we would go over the dunes, but due to (typical of the season) low wind we mostly went up & came back down. On the upside, we saw a stunning sunrise and enjoyed the skill of our balloonist who landed us on the back of the truckbed. The desert breakfast was one of the fanciest breakfasts I've ever had! In short, this was a very enjoyable experience, but if you are watching your budget or are only going to do a hot air ballooon once in your life I wouldn't splurge for it here.  
 
-[Okahandja craft markets] - If you love the local market experience and don't mind being hassled, this might be for you. Local boys "help you park" and then persistantly ask for money when you leave. Almost every shop-keeper will be asking you to come into their store, and staying with you as you look from thing to thing. And of course, there are no set prices. At the same time, they do have many beautiful crafts and seemingly fairly local craftspeople. If you prefer set prices and less hassle, check out the [Namibia Craft Centre] in Windhoek.
-
-
 ##### Not great
 [Erindi] - We enjoyed our first two days in this game reserve, it was fun to do our own game drive in our own vehicle, and Elephant camp had more amenities than some of the later camps. That said, we would have been disappointed if we'd seen this after Etosha and it felt a little strange that they were feeding the wildlife (although it was a severe drought so food was scarce for the grazing animals). [Waterberg plateau] is also on the way to Etosha from Windhoek, and I'd recommend that stop instead. 
+
+[Okahandja craft markets] - If you love the local market experience and don't mind being hassled, this might be for you. Local boys "help you park" and then persistantly ask for money when you leave. Almost every shop-keeper will be asking you to come into their store, and staying with you as you look from thing to thing. And of course, there are no set prices. At the same time, they do have many beautiful crafts and seemingly fairly local craftspeople. If you prefer set prices and less hassle, check out the [Namibia Craft Centre] in Windhoek.
 
 ##### Avoid
 [Wild Dog Safaris] - we used this travel agency to rent a truck and to make many of our camping reservations. I would NOT recommend them, unless it's the only way you can get camping reservations in Etosha (which we needed, and couldn't get directly from the national park). They were very difficult to communicate with, expensive, and a month after our trip we got a bill for the rental car which we'd already paid for. Try [Cardboard Box Travel] instead. 

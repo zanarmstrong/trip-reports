@@ -57,11 +57,12 @@ We planned our trip just 2 weeks before we started. But, would definitely recomm
 ![](https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14591001_1283580038373120_5257044737717698560_n.jpg?ig_cache_key=MTM2OTYzMjQ0ODM4Nzk5NzU4NQ%3D%3D.2)
 [Dune 45] - beautiful dune to walk up the ridge, or playfully jump down the side - it can be quite popular, especially at sunrise. You can drive right up to the edge, so it's quite accessible. If you want to avoid the crowds, try one of the other dunes (which might require a much longer walk). 
 
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14714439_212448692510911_2631935085447741440_n.jpg?ig_cache_key=MTM2NzQzMzQ4MDIyMDQwMzM0MA%3D%3D.2" width="200")
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14714439_212448692510911_2631935085447741440_n.jpg?ig_cache_key=MTM2NzQzMzQ4MDIyMDQwMzM0MA%3D%3D.2" width="300">
+
 [Deadvlei] - beautiful place for photographers! Striking colors. Fascinating place. 
 
 ##### Ok
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14583393_1789407604634243_5098531320322064384_n.jpg?ig_cache_key=MTM2NzQzMjc5NzUxMzMyOTE3NQ%3D%3D.2" width="200">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14583393_1789407604634243_5098531320322064384_n.jpg?ig_cache_key=MTM2NzQzMjc5NzUxMzMyOTE3NQ%3D%3D.2" width="300">
 
 [hot air ballooning] near the dunes - We had expected that we would go over the dunes, but due to (typical of the season) low wind we mostly went up & came back down. On the upside, we saw a stunning sunrise and enjoyed the skill of our balloonist who landed us on the back of the truckbed. The desert breakfast was one of the fanciest breakfasts I've ever had! In short, this was a very enjoyable experience, but if you are watching your budget or are only going to do a hot air ballooon once in your life I wouldn't splurge for it here.  
 

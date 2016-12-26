@@ -14,12 +14,20 @@ Oct 15: game drives in Etosha, stay at Halali
 Oct 16: game drives in Etosha, stay at Okaukeijo camp
 
 Oct 17: game drives in Etosha, stay at Namatoni camp
+
 Oct 18: drive to [Waterberg Plateau]
+
 Oct 19: hiking at [Waterberg Plateau]
-Oct 20: morning game drive at Waterberg, drive to near Windhoek on route to dunes, shop at [Okahandja craft markets], stay at [Monteiro Camping]
+
+Oct 20: morning game drive at Waterberg, drive to near Windhoek on route to dunes, 
+shop at [Okahandja craft markets], stay at [Monteiro Camping]
+
 Oct 21: drive to [Sesriem camp] near [Sossusvlei]
+
 Oct 22: [hot air ballooning] in the morning, stay at [Sesriem camp], visit [Deadvlei] and [Dune 45]
+
 Oct 23: sunrise at Dune 45, drive back to Windhoek, stay at  [Monteiro Camping]
+
 Oct 24: shopping & coffee at [Namibia Craft Centre] in Windhoek, catch flight at airport
 
 ### Why this trip?

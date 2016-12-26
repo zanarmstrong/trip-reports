@@ -1,7 +1,7 @@
 # Namibia - Oct 2016
 
 ### Itinerary
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14482874_601585596715144_1880292036003758080_n.jpg?ig_cache_key=MTM1OTM4NTI4NzUzNjQ0OTQ0OQ%3D%3D.2" width="400">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14482874_601585596715144_1880292036003758080_n.jpg?ig_cache_key=MTM1OTM4NTI4NzUzNjQ0OTQ0OQ%3D%3D.2" width="360">
 
 Oct 11: Windhoek, [Tamboti Guest House] - pick up camper truck at airport from Hertz
 
@@ -37,7 +37,7 @@ Main goal was to see wildlife, especially animals like elephants, giraffes, rhin
 
 ### Who & how?
 
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14677338_658041564361589_6377583009251459072_n.jpg?ig_cache_key=MTM2OTYyOTY3NjcxNjM4ODgyNg%3D%3D.2" width="400">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14677338_658041564361589_6377583009251459072_n.jpg?ig_cache_key=MTM2OTYyOTY3NjcxNjM4ODgyNg%3D%3D.2" width="360">
 
 4 people traveling together: 2 in their late 60's/early 70's and 2 in their 30's 
 Rented a 4wd truck with 2 camping tents on top, mostly cooked own meals. More images of this type of truck w/ camper [here](https://www.google.com/search?q=toyota+hilux+with+2+tents&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjsmertzZLRAhUpsFQKHYLXBZQQ_AUICCgB&biw=1280&bih=650). 
@@ -51,13 +51,13 @@ We planned our trip just 2 weeks before we started. But, would definitely recomm
 
 ##### Highly Recommend
 
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14712438_729973577159835_6050201691209334784_n.jpg?ig_cache_key=MTM2MzM0ODQ0NTY0OTI5NjkwOQ%3D%3D.2" width="400">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14712438_729973577159835_6050201691209334784_n.jpg?ig_cache_key=MTM2MzM0ODQ0NTY0OTI5NjkwOQ%3D%3D.2" width="360">
 
 [Etosha] - This national park is full of absolutely amazing wildlife. Each camping area has it's own waterhole which you can sit and watch the animals that come to drink water. We spent 4 days here, and loved every one. 
 
 [Namibia Craft Centre] in Windhoek - has both traditional and modern crafts - many crafts-person owned shops under one roof - set prices w/ no haggaling, so you don't have to stress over negotiation. Also has a nice coffeeshop in case any of your group doesn't enjoy shopping :)
 
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14591001_1283580038373120_5257044737717698560_n.jpg?ig_cache_key=MTM2OTYzMjQ0ODM4Nzk5NzU4NQ%3D%3D.2" width="400">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14591001_1283580038373120_5257044737717698560_n.jpg?ig_cache_key=MTM2OTYzMjQ0ODM4Nzk5NzU4NQ%3D%3D.2" width="360">
 
 [Dune 45] - beautiful dune to walk up the ridge, or playfully jump down the side - it can be quite popular, especially at sunrise. You can drive right up to the edge, so it's quite accessible. 
 
@@ -65,16 +65,16 @@ You can't drive to the other dunes, but we think you might be able to walk to th
 
 ##### Recommend
 
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14714439_212448692510911_2631935085447741440_n.jpg?ig_cache_key=MTM2NzQzMzQ4MDIyMDQwMzM0MA%3D%3D.2" width="400">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14714439_212448692510911_2631935085447741440_n.jpg?ig_cache_key=MTM2NzQzMzQ4MDIyMDQwMzM0MA%3D%3D.2" width="360">
 
 [Deadvlei] - beautiful place for photographers! Striking colors. Fascinating place. 
 
-<img src="https://lh3.googleusercontent.com/Wg6oYg8JwwGW2b-HMf5vLQjB6ITTpghqMICNjByo7vmMeCVO-cBSxGqCHXnzE_AOsb7Sy-_-N8PJl2uoGmohFwY71DFqSuUWUaYIVmlVI4jupprlMcW0P-U6l5-fKlSgJuqCFflgHHyCNw1Y-kks7Yk16Agi78eBMTr9cxTuDXW1uFAoqEjAu9_6F67__CkjUfkS_f6OPemwGurzxU3VIO97E267l6PyPtPSPWE6auUTmnnDjTEO-JpYu8OtStjun6cgbQVOxvNROQW4Hq46g74YCVtP1MNXEme3IGseWBNxTaLgyEAVH1dq1FVTtODKCx5wetlY8v0cRS3ff-R_b3JYGjMcO4EuAkQ2tKaQ9--ydVZJV2ITJTq7Q-R1_bHluNWkysaIOR1qtl8OzZ_HGgpR-Kqrh8V-R3C5o4-CeceGxM7K5clLFcpLhPwU_NtB338K2K6zTVqMCIjYpuLloJ8dTXjPYXpzVYDm2_qGS_O-B0pT20N0fKiYTMor0qZ2kfzt4bjJAnllrB5XDE5WqCyTuVBWaJspXaYnlvAyQ34atYOMUIQ3h_AFy95hg3MKaAhJ5GYqqBKNTlsJLHtEkPa8Q4lro91xcJTTq6P6aD7ODqUqpg=w466-h262-no" width="400">
+<img src="https://lh3.googleusercontent.com/Wg6oYg8JwwGW2b-HMf5vLQjB6ITTpghqMICNjByo7vmMeCVO-cBSxGqCHXnzE_AOsb7Sy-_-N8PJl2uoGmohFwY71DFqSuUWUaYIVmlVI4jupprlMcW0P-U6l5-fKlSgJuqCFflgHHyCNw1Y-kks7Yk16Agi78eBMTr9cxTuDXW1uFAoqEjAu9_6F67__CkjUfkS_f6OPemwGurzxU3VIO97E267l6PyPtPSPWE6auUTmnnDjTEO-JpYu8OtStjun6cgbQVOxvNROQW4Hq46g74YCVtP1MNXEme3IGseWBNxTaLgyEAVH1dq1FVTtODKCx5wetlY8v0cRS3ff-R_b3JYGjMcO4EuAkQ2tKaQ9--ydVZJV2ITJTq7Q-R1_bHluNWkysaIOR1qtl8OzZ_HGgpR-Kqrh8V-R3C5o4-CeceGxM7K5clLFcpLhPwU_NtB338K2K6zTVqMCIjYpuLloJ8dTXjPYXpzVYDm2_qGS_O-B0pT20N0fKiYTMor0qZ2kfzt4bjJAnllrB5XDE5WqCyTuVBWaJspXaYnlvAyQ34atYOMUIQ3h_AFy95hg3MKaAhJ5GYqqBKNTlsJLHtEkPa8Q4lro91xcJTTq6P6aD7ODqUqpg=w466-h262-no" width="360">
 
 [Waterberg Plateau] - Enjoyable good stop on the way between Windhoek and Etosha, but not a "must do". Enjoyed hiking & scrambling up to the edge of the plateau to get a good view, especially since you otherwise spend so much time in the car on safari. Also enjoyed the guided game drive on top of plateau to see animals including viewing from inside a hide. Nice swimming pool to cool off and nice restaurant in historical fort. 
 
 ##### Ok
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14583393_1789407604634243_5098531320322064384_n.jpg?ig_cache_key=MTM2NzQzMjc5NzUxMzMyOTE3NQ%3D%3D.2" width="400">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14583393_1789407604634243_5098531320322064384_n.jpg?ig_cache_key=MTM2NzQzMjc5NzUxMzMyOTE3NQ%3D%3D.2" width="360">
 
 [hot air ballooning] near the dunes - We had expected that we would go over the dunes, but due to low wind we mostly went up & came back down. Obviously they can't control the wind, but it sounds like this was actually a pretty typical experience and it would have been nice to have the right expectations going into the experience. On the plus side, we saw a stunning sunrise and enjoyed the skill of our balloonist who landed us on the back of the truckbed. The desert breakfast was quite fancy with table clothes, champagne, and a tasty array of food. In short, this was a very enjoyable experience, but if you are watching your budget or are only going to do a hot air ballooon once in your life I wouldn't splurge for it here.  
 

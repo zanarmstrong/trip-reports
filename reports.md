@@ -2,11 +2,17 @@
 
 ### Itinerary
 Oct 11: Windhoek, [Tamboti Guest House] - pick up camper truck at airport from Hertz
+
 Oct 12: Shopping & Drive to Camp Elephant at [Erindi]
+
 Oct 13: game drives at [Erindi]
+
 Oct 14: drive to Halali camp in Etosha National Park
+
 Oct 15: game drives in Etosha, stay at Halali
+
 Oct 16: game drives in Etosha, stay at Okaukeijo camp
+
 Oct 17: game drives in Etosha, stay at Namatoni camp
 Oct 18: drive to [Waterberg Plateau]
 Oct 19: hiking at [Waterberg Plateau]

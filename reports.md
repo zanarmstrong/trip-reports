@@ -40,7 +40,7 @@ Main goal was to see wildlife, especially animals like elephants, giraffes, rhin
 <img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14677338_658041564361589_6377583009251459072_n.jpg?ig_cache_key=MTM2OTYyOTY3NjcxNjM4ODgyNg%3D%3D.2" width="400">
 
 4 people traveling together: 2 in their late 60's/early 70's and 2 in their 30's 
-Rented a 4wd truck with 2 camping tents on top, mostly cooked own meals
+Rented a 4wd truck with 2 camping tents on top, mostly cooked own meals. More images of this type of truck w/ camper [here](https://www.google.com/search?q=toyota+hilux+with+2+tents&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjsmertzZLRAhUpsFQKHYLXBZQQ_AUICCgB&biw=1280&bih=650). 
 
 ### Need to plan early? 
 Not necessary, but would make things less stressful. 
@@ -67,7 +67,7 @@ We planned our trip just 2 weeks before we started. But, would definitely recomm
 [Deadvlei] - beautiful place for photographers! Striking colors. Fascinating place. 
 
 ##### Ok
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14583393_1789407604634243_5098531320322064384_n.jpg?ig_cache_key=MTM2NzQzMjc5NzUxMzMyOTE3NQ%3D%3D.2" width="300">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14583393_1789407604634243_5098531320322064384_n.jpg?ig_cache_key=MTM2NzQzMjc5NzUxMzMyOTE3NQ%3D%3D.2" width="400">
 
 [hot air ballooning] near the dunes - We had expected that we would go over the dunes, but due to (typical of the season) low wind we mostly went up & came back down. On the upside, we saw a stunning sunrise and enjoyed the skill of our balloonist who landed us on the back of the truckbed. The desert breakfast was one of the fanciest breakfasts I've ever had! In short, this was a very enjoyable experience, but if you are watching your budget or are only going to do a hot air ballooon once in your life I wouldn't splurge for it here.  
 

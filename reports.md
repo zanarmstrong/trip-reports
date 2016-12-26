@@ -1,7 +1,7 @@
 # Namibia - Oct 2016
 
 ### Itinerary
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14482874_601585596715144_1880292036003758080_n.jpg?ig_cache_key=MTM1OTM4NTI4NzUzNjQ0OTQ0OQ%3D%3D.2" width="300">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14482874_601585596715144_1880292036003758080_n.jpg?ig_cache_key=MTM1OTM4NTI4NzUzNjQ0OTQ0OQ%3D%3D.2" width="400">
 
 Oct 11: Windhoek, [Tamboti Guest House] - pick up camper truck at airport from Hertz
 
@@ -48,18 +48,18 @@ We planned our trip just 2 weeks before we started. But, would definitely recomm
 
 ##### Highly Recommend
 
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14712438_729973577159835_6050201691209334784_n.jpg?ig_cache_key=MTM2MzM0ODQ0NTY0OTI5NjkwOQ%3D%3D.2" width="300">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14712438_729973577159835_6050201691209334784_n.jpg?ig_cache_key=MTM2MzM0ODQ0NTY0OTI5NjkwOQ%3D%3D.2" width="400">
 
 [Etosha] - This national park is full of absolutely amazing wildlife. Each camping area has it's own waterhole which you can sit and watch the animals that come to drink water. We spent 4 days here, and loved every one. 
 
 [Namibia Craft Centre] in Windhoek - has both traditional and modern crafts - many crafts-person owned shops under one roof - set prices w/ no haggaling, so you don't have to stress over negotiation. Also has a nice coffeeshop in case any of your group doesn't enjoy shopping :)
 
 ##### Recommend
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14591001_1283580038373120_5257044737717698560_n.jpg?ig_cache_key=MTM2OTYzMjQ0ODM4Nzk5NzU4NQ%3D%3D.2" width="300">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14591001_1283580038373120_5257044737717698560_n.jpg?ig_cache_key=MTM2OTYzMjQ0ODM4Nzk5NzU4NQ%3D%3D.2" width="400">
 
 [Dune 45] - beautiful dune to walk up the ridge, or playfully jump down the side - it can be quite popular, especially at sunrise. You can drive right up to the edge, so it's quite accessible. If you want to avoid the crowds, try one of the other dunes (which might require a much longer walk). 
 
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14714439_212448692510911_2631935085447741440_n.jpg?ig_cache_key=MTM2NzQzMzQ4MDIyMDQwMzM0MA%3D%3D.2" width="300">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14714439_212448692510911_2631935085447741440_n.jpg?ig_cache_key=MTM2NzQzMzQ4MDIyMDQwMzM0MA%3D%3D.2" width="400">
 
 [Deadvlei] - beautiful place for photographers! Striking colors. Fascinating place. 
 

@@ -61,7 +61,7 @@ We planned our trip just 2 weeks before we started. But, would definitely recomm
 [Deadvlei] - beautiful place for photographers! Striking colors. Fascinating place. 
 
 ##### Ok
-<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14583393_1789407604634243_5098531320322064384_n.jpg?ig_cache_key=MTM2NzQzMjc5NzUxMzMyOTE3NQ%3D%3D.2" style="max-width:50px;">
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14583393_1789407604634243_5098531320322064384_n.jpg?ig_cache_key=MTM2NzQzMjc5NzUxMzMyOTE3NQ%3D%3D.2" width="50">
 [hot air ballooning] near the dunes - We had expected that we would go over the dunes, but due to (typical of the season) low wind we mostly went up & came back down. On the upside, we saw a stunning sunrise and enjoyed the skill of our balloonist who landed us on the back of the truckbed. The desert breakfast was one of the fanciest breakfasts I've ever had! In short, this was a very enjoyable experience, but if you are watching your budget or are only going to do a hot air ballooon once in your life I wouldn't splurge for it here.  
 
 [Okahandja craft markets] - If you love the local market experience and don't mind being hassled, this might be for you. Local boys "help you park" and then persistantly ask for money when you leave. Almost every shop-keeper will be asking you to come into their store, and staying with you as you look from thing to thing. And of course, there are no set prices. At the same time, they do have many beautiful crafts and seemingly fairly local craftspeople. If you prefer set prices and less hassle, check out the [Namibia Craft Centre] in Windhoek.

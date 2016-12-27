@@ -28,8 +28,14 @@ Portage Glacier trail in Whittier -
 
 [Byers Lake Campground] in Denali STATE park - nice campground near a beautiful lake in Denali State park (south of the national park). Wonderful swimming, though be prepared for cold water of course :)
 
+Alaska State Fair - 
+
+[Salmon Viewing platform](http://www.alaska.org/detail/williwaw-fish-viewing-platform#photos) & trail - on Portage Glacier road, on the way towards Whittier, there is a salmon viewing platform where you can watch salmon spawing. There is also a trail that starts here, goes under the highway, and follows the stream. Both of these were surprisingly fantastic, and we very much enjoyed watching salmon in the river. We even saw a few swim up waterfalls!
+
 #### Alright
 Whitewater rafting near Denali - the river was quite tame. It was as much floating down the river as whitewater, and the whitewater was pretty chill. Don't expect any actual challenge, but it was still a fun way to see the river. 
+
+[Downhill Mountain biking at Alyeska resort](http://www.alyeskaresort.com/mountain/downhill-mountain-biking) - We had a good time here, especially on the lower trails. However the upper beginner trails were pretty bad, and there was really only one option for most of the mountain. Possibly the upper non-beginner trails are great, but we weren't good enough at the time to ride them. 
 
 #### Not great
 Alaska Wildlife Conservation Center, near Portage - this was basically a zoo for Alaskan animals.

@@ -60,20 +60,35 @@ Talkeetna - very touristy town on side road on the way from Anchorage to Denali.
 
 ### Itinerary
 Aug 11-13: Anchorage w/ friends
+
 Aug 14-16: Stayed at friend's apartment in Whittier, hike Portage trail
+
 Aug 18: pack, drive north w/ dinner at Flying Squirrel, camp at Byers lake in Denali STATE park
+
 Aug 19: get backcountry reservations, whitewater kayaking, dinner in town, camping at [Riley Creek](https://www.nps.gov/dena/planyourvisit/campground-riley.htm)
+
 Aug 20-22: backcountry camping in Denali, stay at Bluesberry Inn on night of the 22cd
+
 Aug 23: hike Wolf Point Trail, drive back to Anchorage
+
 Aug 24-25: Anchorage w/ friends, with a day trip to Alaska State Fair
+
 Aug 26: Drove to Seward. Dinner at Chinooks. AirBnB in Seward.
+
 Aug 27: Tried to kayak, but ended up just enjoying the boat ride out to the Aialik fjord and back due to weather. Hike Exit Glacier trail to camp at the end of the trail. 
+
 Aug 28: Enjoyed Harding Ice Field, and hiked down. Camped at Primrose campground.
+
 Aug 29: Hiked long trail/primrose trail. Another night at Primrose. 
+
 Aug 30: Drove & errands. Then slept car in parking lot for fishing. 
+
 Aug 31: early morning guided Salmon fishing, followed by driving to Homer. Stayed at [Cottonwood View cabin](https://www.airbnb.com/rooms/5591978?guests=2&adults=2&children=0&infants=0&s=SETZ-_G4) a bit east of Homer. 
+
 Sep 1: flight to Katmai & bear viewing, followed by cooking salmon bought at Auction Block on Homer Spit
+
 Sep 2: back to Anchorage, after a quick dip in Summit Lake on Seward Highway
+
 Sep 3: depart
 
 ### Who & how?

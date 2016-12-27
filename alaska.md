@@ -30,6 +30,8 @@ Portage Glacier trail in Whittier -
 
 Alaska State Fair - 
 
+<img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14026494_1742782105971127_1445213602_n.jpg?ig_cache_key=MTMxOTM5NzUwMDYyODczOTI0Mw%3D%3D.2" width="400">
+
 [Salmon Viewing platform](http://www.alaska.org/detail/williwaw-fish-viewing-platform#photos) & trail - on Portage Glacier road, on the way towards Whittier, there is a salmon viewing platform where you can watch salmon spawing. There is also a trail that starts here, goes under the highway, and follows the stream. Both of these were surprisingly fantastic, and we very much enjoyed watching salmon in the river. We even saw a few swim up waterfalls!
 
 #### Alright

@@ -34,8 +34,12 @@ Alaska State Fair -
 
 [Salmon Viewing platform](http://www.alaska.org/detail/williwaw-fish-viewing-platform#photos) & trail - on Portage Glacier road, on the way towards Whittier, there is a salmon viewing platform where you can watch salmon spawing. There is also a trail that starts here, goes under the highway, and follows the stream. Both of these were surprisingly fantastic, and we very much enjoyed watching salmon in the river. We even saw a few swim up waterfalls!
 
+[Fresh fish from Auction Block](https://www.yelp.com/biz/the-auction-block-co-homer) - Great place to buy whole fresh fish. Since you are buying a whole fish, it's easy to end up with lots of leftovers!
+
+[Small Primrose campground](https://www.fs.usda.gov/recarea/chugach/recreation/camping-cabins/recarea/?recid=6644&actid=29) and [trail](http://www.alaska.org/detail/lost-lake-trail) on Kenai Peninsula - If you are headed to Seward, Primrose campground is a lovely, primative campground not far from Seward. It's just got 8 campsites along a river, near a lake. It's also the trailhead for a very nice trail that can be done as an out & back, or a longer one-way hike if you can catch a ride back. 
+
 #### Alright
-Whitewater rafting near Denali - the river was quite tame. It was as much floating down the river as whitewater, and the whitewater was pretty chill. Don't expect any actual challenge, but it was still a fun way to see the river. 
+[Whitewater rafting near Denali](http://www.raftdenali.com/) - the river was quite tame. It was as much floating down the river as whitewater, and the whitewater was pretty chill. Don't expect any actual challenge, but it was still a fun way to see the river. We've heard there are other rafting spots in Alaska. 
 
 [Downhill Mountain biking at Alyeska resort](http://www.alyeskaresort.com/mountain/downhill-mountain-biking) - We had a good time here, especially on the lower trails. However the upper beginner trails were pretty bad, and there was really only one option for most of the mountain. Possibly the upper non-beginner trails are great, but we weren't good enough at the time to ride them. 
 

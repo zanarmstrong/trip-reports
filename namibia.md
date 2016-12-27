@@ -5,7 +5,7 @@ Main goal was to see wildlife, especially animals like elephants, giraffes, rhin
 
 ### Recommendations
 
-##### Highly Recommend
+#### Highly Recommended
 
 <img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14712438_729973577159835_6050201691209334784_n.jpg?ig_cache_key=MTM2MzM0ODQ0NTY0OTI5NjkwOQ%3D%3D.2" width="360">
 
@@ -19,7 +19,7 @@ Main goal was to see wildlife, especially animals like elephants, giraffes, rhin
 
 You can't drive to the other dunes, but we think you might be able to walk to them. So, I'd recommend looking into that if you want to avoid the crowd. 
 
-##### Recommend
+#### Recommended
 
 <img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14714439_212448692510911_2631935085447741440_n.jpg?ig_cache_key=MTM2NzQzMzQ4MDIyMDQwMzM0MA%3D%3D.2" width="360">
 
@@ -29,19 +29,19 @@ You can't drive to the other dunes, but we think you might be able to walk to th
 
 [Waterberg Plateau] - Enjoyable good stop on the way between Windhoek and Etosha, but not a "must do". Enjoyed hiking & scrambling up to the edge of the plateau to get a good view, especially since you otherwise spend so much time in the car on safari. Also enjoyed the guided game drive on top of plateau to see animals including viewing from inside a hide. Nice swimming pool to cool off and nice restaurant in historical fort. 
 
-##### Ok
+#### Alright
 <img src="https://scontent-ord1-1.cdninstagram.com/t51.2885-15/e35/14583393_1789407604634243_5098531320322064384_n.jpg?ig_cache_key=MTM2NzQzMjc5NzUxMzMyOTE3NQ%3D%3D.2" width="360">
 
 [hot air ballooning] near the dunes - We had expected that we would go over the dunes, but due to low wind we mostly went up & came back down. Obviously they can't control the wind, but it sounds like this was actually a pretty typical experience and it would have been nice to have the right expectations going into the experience. On the plus side, we saw a stunning sunrise and enjoyed the skill of our balloonist who landed us on the back of the truckbed. The desert breakfast was quite fancy with table clothes, champagne, and a tasty array of food. In short, this was a very enjoyable experience, but if you are watching your budget or are only going to do a hot air ballooon once in your life I wouldn't splurge for it here.  
 
-##### Not great
+#### Not great
 [Erindi] - We enjoyed our first two days in this game reserve, it was fun to do our own game drive in our own vehicle, and Elephant camp had more amenities than some of the later camps. That said, we would have been disappointed if we'd seen this after Etosha and it felt a little strange that they were feeding the wildlife (although it was a severe drought so food was scarce for the grazing animals). [Waterberg plateau] is also on the way to Etosha from Windhoek, and I'd recommend that stop instead. 
 
 [Okahandja craft markets] - If you love the craft market experience and don't mind a good bit of hassling, this might be for you. Local boys "help you park" in the only parking lot and then persistantly ask for money when you leave. Almost every shop-keeper will be insisting that you to come into their store, staying with you as you look from thing to thing, and fairly aggressively pressuring you to buy. And of course, you have no idea what the price is for anything. At the same time, they do have many beautiful crafts and seemingly reasonably local craftspeople. We finally found one shop where we could browse in peace, and ended up buying a few things there. Note - we went to the northern market. There is also one on the south end of the town. 
 
 If you prefer set prices and less hassle, check out the [Namibia Craft Centre] in Windhoek.
 
-##### Avoid
+#### Avoid
 [Wild Dog Safaris] - we used this travel agency to rent a truck and to make many of our camping reservations. I would NOT recommend them, unless it's the only way you can get camping reservations in Etosha. Etosha is a national park, but often you can't buy camping or hotel reserations directly from the park because agencies like Wild Dog have already purchased them to resell to customers later. Wild Dog was extremely difficult to communicate with, expensive, and a month after our trip we got a bill for the rental car which we'd already paid for. Try [Cardboard Box Travel] instead. 
 
 ### Didn't do, but wish we did

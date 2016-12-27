@@ -48,7 +48,7 @@ Talkeetna - very touristy town on side road on the way from Anchorage to Denali.
 ### Didn't do, but wish we did
 [Gates of the Arctic] - this national park requires being dropped off in a bush plane, so requires some extra planning. It sounds like an amazing experience and opportunity to go very backcountry, and very off-trail. 
 
-[Kayaking trip from Seward] - We tried to do this, but got "sunnied out". Turns out that when it's sunny it means that the wind has blown the clouds away, and that the wind is building up waves in the bay. It looks beautiful, and is worth trying. But beware that you might not be able to do it. 
+[Kayaking trip from Seward] - We tried to do this with [Adventure 60 North](http://www.adventure60.com/), but got "sunnied out". Turns out that when it's sunny it means that the wind has blown the clouds away, and that the wind is building up waves in the bay. It looks beautiful, and is worth trying. But beware that you might not be able to do it. Another company a friend had recommended was [Sunny Cove](http://www.sunnycove.com/).
 
 ### Itinerary
 Aug 11: arrive in Anchorage
@@ -70,7 +70,6 @@ Lots of places aren't accessible by roads, so you'd need to book a boat or bush 
 [//]: # (These are reference links used in the body of this note and get stripped out when the markdown processor does its job. There is no need to format nicely because it shouldn't be seen. Thanks SO - http://stackoverflow.com/questions/4823468/store-comments-in-markdown-syntax)
 
    [Gates of the Arctic]: <https://www.nps.gov/gaar/index.htm>
-   [Kayaking trip from Seward]: <>
    [Flying Squirrel Cafe]: <http://www.flyingsquirrelcafe.com/>
    [Byers Lake Campground]: <http://dnr.alaska.gov/parks/aspunits/matsu/byerslkcamp.htm>
    

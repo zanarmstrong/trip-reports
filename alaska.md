@@ -9,7 +9,7 @@ Exploring one of the most amazing states in US. Big outdoors & nature. Backpacki
 #### Highly Recommended
 Backcountry, off-trail backpacking in Denali - This was Jonas' favorite thing we did in 2016, besides our own wedding. 
 
-Watching grizzley bears in Katmai - 
+[Grizzly bears in Katmai, flight plane from Homer](http://www.emeraldairservice.com/) - from Homer, you can take a small plane over to Katmai National Park where they have the world's highest concetration of grizzly bears. It's amazing to watch the bears in their natural habitat. 
 
 Exit Glacier trail overlooking the ice field - 
 

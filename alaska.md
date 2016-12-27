@@ -7,15 +7,15 @@ Exploring one of the most amazing states in US. Big outdoors & nature. Backpacki
 ### Recommendations
 
 #### Highly Recommended
-Backcountry backpacking in Denali - 
+Backcountry, off-trail backpacking in Denali - This was Jonas' favorite thing we did in 2016, besides our own wedding. 
 
-Watching grizzley bears in K - 
+Watching grizzley bears in Katmai - 
 
 Exit Glacier trail overlooking the ice field - 
 
 Great Harvest Bread Company, in Anchorage - best bread ever. Hearty and tasty. Plus, huge free samples. 
 
-Blueberry trail - If it's blueberry season, this trail is amazing for both the blueberries and the view. If it's not blueberry season, it's still a nice view at the end of the trail but the trail itself will be less fun. We saw more blueberries than we ever have in our lives, or ever imagined could exist in one place. We easily picked two liters, half of which we ate immediately, in a 2m section of the trail. Now I finally understand how bears could live off of blueberries. 
+[Blueberry trail (Wolf Point Trail)](http://www.bluesberryinn.com/index.php/trail-maps) - If it's blueberry season, this trail is amazing for both the blueberries and the view. If it's not blueberry season, it's still a nice view at the end of the trail but the trail itself will be less fun. We saw more blueberries than we ever have in our lives, or ever imagined could exist in one place. We easily picked two liters, half of which we ate immediately, in a 2m section of the trail. Now I finally understand how bears could live off of blueberries. 
 
 #### Recommended
 AirBnB in Homer - 
@@ -25,6 +25,8 @@ Salmon fishing -
 Portage Glacier trail in Whittier - 
 
 [Flying Squirrel Cafe] - This might not be worth the detour, but if you find yourself near the side road to Talkeetna and are hungry definitely go for it. Very tasty pizza. 
+
+[Byers Lake Campground] in Denali STATE park - nice campground near a beautiful lake in Denali State park (south of the national park). Wonderful swimming, though be prepared for cold water of course :)
 
 #### Alright
 Whitewater rafting near Denali - the river was quite tame. It was as much floating down the river as whitewater, and the whitewater was pretty chill. Don't expect any actual challenge, but it was still a fun way to see the river. 
@@ -42,22 +44,26 @@ Talkeetna - very touristy town on side road on the way from Anchorage to Denali.
 
 ### Itinerary
 Aug 11: arrive in Anchorage
-
-
+...
 
 ### Who & how?
 
 
 ### Need to plan early? 
+Since the tourist season is so short, many things book up early. These include campgrounds in Denali National Park (not the backcountry, as you can't reserve those early), flights to see the bears in Katmai, kayaking trips, and more. We were able to get reservations for most of the things we wanted, but sometimes had to plan our trip around when certain activities were available. Other things, like rental cars, can get very expensive at the last minute. 
 
+That said, you can't actually make Denali backpacking reservations in advance. If you want to go backpacking in the park, you show up at most one day ahead of time at the backcountry office and reserve the sections where you will hike. They've divided up the entire park into sections, and only 2-10 people can camp in each section each night depending on the section's limits. 
 
 ### Tips
+T-mobile has no service in Alaska, even in Anchorage. 
 
+Lots of places aren't accessible by roads, so you'd need to book a boat or bush plane. 
 
 [//]: # (These are reference links used in the body of this note and get stripped out when the markdown processor does its job. There is no need to format nicely because it shouldn't be seen. Thanks SO - http://stackoverflow.com/questions/4823468/store-comments-in-markdown-syntax)
 
    [Gates of the Arctic]: <https://www.nps.gov/gaar/index.htm>
    [Kayaking trip from Seward]: <>
    [Flying Squirrel Cafe]: <http://www.flyingsquirrelcafe.com/>
+   [Byers Lake Campground]: <http://dnr.alaska.gov/parks/aspunits/matsu/byerslkcamp.htm>
    
 

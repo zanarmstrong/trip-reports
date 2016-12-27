@@ -97,6 +97,9 @@ We planned our trip just 2 weeks before we started. But, would definitely recomm
 ### Tips
 Definitely try to stay in Etosha itself, especially at Okaukeijo camp or Halali camp. If Etosha says there is no more camping or hotel reservations available, try going through a travel agency. Often there are campsites that are available, but they've been pre-reserved by the travel agencies.
 
+### Photo album
+A few more photos [here](https://goo.gl/photos/rXd6zszdNNuo5sj87). 
+
 
 [//]: # (These are reference links used in the body of this note and get stripped out when the markdown processor does its job. There is no need to format nicely because it shouldn't be seen. Thanks SO - http://stackoverflow.com/questions/4823468/store-comments-in-markdown-syntax)
 
